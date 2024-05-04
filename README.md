@@ -4,4 +4,4 @@ Sohbet etmeyi çok severim. istediğiniz zaman iletişime geçebilirsiniz.
 Dilerseniz discord gibi uygulamalar üzerinden yazılım alanında çalışabiliriz. Neden olmasın?
 beraber projeler hakkında konuşablilriz,fikirlerimizi paylaşabiliriz ve bunun için harekete geçebiliriz.
 grup çalışması yapmayı çok severim, aynı zamanda arkadaş edinmeyide.
-Uzun lafın kısası yazılım alanında kendimi geliştiriyorum. Ve geliştirmeye devam edeceğim
+Uzun lafın kısası yazılım alanında kendimi geliştiriyorum.
